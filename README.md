@@ -1,5 +1,5 @@
 # Hi There , I'm Adir Zadok 👋
-**B.Sc. Software Engineering Student | M.Sc in Information security and cyber **
+**B.Sc. Software Engineering Student | Major in Information security and cyber **
 ---
 
 ## My Skill Set
